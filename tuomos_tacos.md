@@ -5,3 +5,4 @@
 4. Simmer on low heat until chicken is cooked through.
 5. Serve Chicken on warm Flour Tortillas with Mango Avocado Salsa and Monterey Jack Cheese.
 6. Lots of lettuce
+7. ice cream for dessert
