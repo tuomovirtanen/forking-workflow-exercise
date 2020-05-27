@@ -1,3 +1,4 @@
+# This is my taco recipe
 1. Season chicken thighs with salt and pepper and brown in a large skillet on medium heat.
 2. Cube the browned chicken thighs and return to the pan.
 3. Add spices from Basic Shredded Chicken recipe.
